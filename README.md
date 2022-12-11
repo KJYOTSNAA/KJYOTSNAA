@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **kjyotsnajsr@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1MCSi5LRazNZXQOChOM9oOPjIR-_v0Cu4/view?usp=sharing](https://drive.google.com/file/d/1MCSi5LRazNZXQOChOM9oOPjIR-_v0Cu4/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1MCSi5LRazNZXQOChOM9oOPjIR-_v0Cu4/view?usp=sharing](https://drive.google.com/file/d/1My4-CR44xziAUhlDGoOXOOQKJHfTXOd5/view?usp=share_link)
 
 - ⚡ Fun fact **I think I am creative**
 

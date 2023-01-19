@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **Full Stack MERN Developer Program**
 
-- 💬 Ask me about **HTML, CSS, JAVASCRIPT,C, JAVA, python,**
+- 💬 Ask me about **HTML, CSS, JAVASCRIPT,Reactjs(basics),C, JAVA, python,**
 
 - 📫 How to reach me **kjyotsnajsr@gmail.com**
 
